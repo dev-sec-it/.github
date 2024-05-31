@@ -1,10 +1,10 @@
-# DEV SEC IT LLC
+# DEV SEC IT Ltd.
 
 ### We focus on growing your brand online
 Build world-class digital products with a team of design, development & strategy experts. All in one place. We can provide your business with a variety of digital solutions.
 
-### Full range of digital marketing srvices!
-Greatly explain attempt perhaps in feeling he. House men taste bed not drawn joy. Through enquire however do equally herself at. Greatly way old may you present improve.
+### Full range of digital marketing services!
+Greatly explain attempt perhaps in feeling he. House men taste bed not drawn joy. Through enquire, however, do equally herself at. Greatly how old may your present improve?
 Wishing the feeling village him musical.
 
 ### WHY DEV SEC IT?
@@ -35,4 +35,4 @@ empowered by the robust infrastructure of IT. This synergistic dance results in 
 4. Compliance and Regulation: Ensures adherence to industry standards and regulations, fostering trust and protecting organizations from legal risks.
 5. Enhanced Reputation: Establishes a reputation for delivering secure and reliable technology solutions, boosting customer confidence and loyalty.
 
-For more info visit on https://devsecit.com 
+For more info visit https://devsecit.com 
