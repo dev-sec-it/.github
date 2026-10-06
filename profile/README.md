@@ -1,4 +1,4 @@
-# DEV SEC IT Ltd.
+# DEV SEC IT
 
 ### We focus on growing your brand online
 Build world-class digital products with a team of design, development & strategy experts. All in one place. We can provide your business with a variety of digital solutions.
